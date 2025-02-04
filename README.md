@@ -1,5 +1,5 @@
 ## ABOUT LOWKEYSAM :flushed:
-Learning a bit of everything and tinkering with software that makes life easier
+Learning
 
 
 
